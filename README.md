@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kgotso72014
 - 👀 I’m interested in codeing
 - 🌱 I’m currently learning codeing
-- 💞️ I’m looking to collaborate on roblox 
+- 💞️ I’m looking to collaborate on roblox or pull requests
 - 📫 How to reach me Dm me
 Will 
 <!---
